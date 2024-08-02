@@ -61,4 +61,5 @@ Tchê, tchê, tchê, tchê
 Gusttavo Lima e você
 Gusttavo Lima
 Quem gostou joga a mão pra cima e balança ae
+[Gustavo Lima](https://www.youtube.com/watch?v=Z1ZKaR-9Kt4)
 ![](https://media1.tenor.com/m/TNcoD6T-gHQAAAAC/dan%C3%A7ando-gusttavo-lima.gif)
